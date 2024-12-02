@@ -2,7 +2,7 @@
 - 👀 I’m interested in Cloud
 - 🌱 I’m currently learning ops 
 - 💞️ I’m looking to collaborate on nthg
-- 📫 How to reach me dont
+- 📫 How to reach me {Dont}
 - 😄 Pronouns: devsan17
 - ⚡ Fun fact: I just created my account 
 
